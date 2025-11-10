@@ -1,0 +1,1 @@
+# Trabalho-de-Matem-tica-Geometria-na-Pr-tica-rea-do-Triangulo-e-Trap-zio-1-EMI-ASN-2025
